@@ -6,7 +6,6 @@
 2. [Задание 2](https://ya.ru)
 
 # Afzalov V.R.
-1 - '
 
 
 
